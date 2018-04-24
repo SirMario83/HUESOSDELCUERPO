@@ -16,6 +16,6 @@ _HERNÁNDEZ VALENZUELA ESTEBAN_
 
 
 
-# ¿Por y para qué tenemos huesos?
+# ¿Porqué y para qué tenemos huesos?
 
 _El conjunto de nuestros huesos constituyen un armazón, el esqueleto, que nos sirve para soportar todo el peso del organismo y dar forma al cuerpo. También tienen una función protectora de los órganos internos, por ejemplo el cráneo protege al cerebro y las costillas a los pulmones y el corazón. Además los huesos nos ayudan a movernos, al funcionar como palancas que multiplican la fuerza de los músculos que se apoyan en ellos._
